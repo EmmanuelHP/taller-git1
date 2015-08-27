@@ -3,12 +3,6 @@ ParangaricutirimicuaroSupercalifragilisticoespilaridoso
 
 
 
-
-
-
-
-
-
-
 :v * :v
 
+looooooooooooooooooooooooooooooooooooooooooooooooooooooool
